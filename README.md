@@ -1,1 +1,1 @@
-18 year old novice programmer interested in building projects and learning about new technologies
+Novice programmer interested in building projects and learning about new technologies
